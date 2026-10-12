@@ -27,4 +27,4 @@ With a background in design and digital content production, I enjoy combining cr
 
 Always learning. Always experimenting. Always building.
 
-**Kryptekpn — Curiosity is my exploit. Knowledge is my defense.** 🔥
+**Kryptekpn — Curiosity is my exploit. Knowledge is my defense.** 
